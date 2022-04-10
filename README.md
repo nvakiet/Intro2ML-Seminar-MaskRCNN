@@ -6,3 +6,6 @@ Group members:
 - Triệu Nguyên Phát  
 - La Ngọc Hồng Phúc  
 - Nguyễn Thái Tiến  
+  
+Link to our group seminar video:
+https://youtu.be/I8cCHOBqA88
